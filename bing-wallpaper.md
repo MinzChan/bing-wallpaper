@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-01-13 | [Mount Fanjing in southwest China (© zhuxiaophotography/Shutterstock)](https://cn.bing.com/th?id=OHR.FanjingStairs_EN-US7395504080_UHD.jpg) 
+
 2022-01-11 | [Ski touring in the High Tauern mountain range near Bad Gastein, Austria (© RooM the Agency/Alamy)](https://cn.bing.com/th?id=OHR.SkiTouring_EN-US1605895803_UHD.jpg) 
 
 2022-01-10 | [Rice laid out to dry in Dhamrai, Dhaka, Bangladesh (© Amazing Aerial Agency/Offset by Shutterstock)](https://cn.bing.com/th?id=OHR.RiceBangladesh_EN-US1519717699_UHD.jpg) 
