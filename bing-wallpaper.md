@@ -1,4 +1,6 @@
 ## Bing Wallpaper
+2022-01-14 | [Northern lights over a stranded boat in Tasiilaq, Greenland (© Shane P. White/Minden Pictures)](https://cn.bing.com/th?id=OHR.TasiilaqAurora_EN-US1844697925_UHD.jpg) 
+
 2022-01-13 | [Mount Fanjing in southwest China (© zhuxiaophotography/Shutterstock)](https://cn.bing.com/th?id=OHR.FanjingStairs_EN-US7395504080_UHD.jpg) 
 
 2022-01-11 | [Ski touring in the High Tauern mountain range near Bad Gastein, Austria (© RooM the Agency/Alamy)](https://cn.bing.com/th?id=OHR.SkiTouring_EN-US1605895803_UHD.jpg) 
